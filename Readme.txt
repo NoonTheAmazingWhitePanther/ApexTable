@@ -7,7 +7,7 @@ Lazer. easier that iron. still remains in the missile and worth it's costs and r
 
 My job is to increase the potential of utilities and to teach more Experienced devices and utilities into a Smart solution rather than the obvious to generate more money for The Weapon Salesman.
 
-Yeah until one of you touched the Wrong Girl. Conair (Movie) will not be presented here. the ideals are right.
+Yeah until one of you touched the Wrong Girl. Conair (Movie Reference) will not be presented here. the ideals are right.
 
 Man Up
 Humanity 2.0.
